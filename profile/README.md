@@ -39,6 +39,15 @@
 
 ---
 
+## Features:
+
+- **🌾 Slow-Burn Atmosphere -** Dusty roads, warm nights, loud festivals, and quiet moments that say more than words.
+- **🍑 Rivalry-Driven Story -** A narrative about pride, jealousy, and second chances — where every step brings you closer to redemption… or deeper into chaos.
+- **🎯 Festival Competitions -** Take part in casual mini-games: high-speed races, precision challenges, and crowd-favorite attractions.
+- **🔥 A Multitude of Sexy Situations -** Plenty of playful, daring, and unexpectedly heated scenarios — all wrapped in atmosphere and story.
+- **⚡ Fast-Paced & Intuitive Gameplay -** Jump straight into the action with smooth progression and easy-to-grasp mechanics.
+- **😉 One-Hand Friendly Experience -** Designed for comfort and convenience… you know, just in case. ( ͡~ ͜ʖ ͡°)
+
 ## ⚙️ ONLY FARMS – System Requirements
 
 | 💻 Requirement | 📋 Minimum |
