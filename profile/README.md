@@ -21,9 +21,9 @@
 
 </div>
 
-## ONLY FARMS 🍑 Overview
+## What is ONLY FARMS 🍑?
 
-ONLY FARMS 🍑 is an adult visual novel where rivalry, temptation, and secrets collide. Reclaim your family name, conquer wild festival challenges, uncover hidden desires, and make choices that shape your summer. The farm is yours to win.
+**ONLY FARMS 🍑** is an adult visual novel where rivalry, temptation, and secrets collide. Reclaim your family name, conquer wild festival challenges, uncover hidden desires, and make choices that shape your summer. The farm is yours to win.
 
 ---
 
@@ -52,4 +52,4 @@ ONLY FARMS 🍑 is an adult visual novel where rivalry, temptation, and secrets 
 
 **Tags:** #OnlyFarms #AdultGame #VisualNovel #Simulation #Uncensored #LewdStar #WindowsGame
 
-**Disclaimer:** We do not own this game. All rights belong to **Lewd Star**. This post is for informational purposes only.
+**Disclaimer:** We do not own this game. All rights belong to **[Lewd Star](https://store.steampowered.com/app/4657600/ONLY_FARMS/)**. This post is for informational purposes only.
